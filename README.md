@@ -1,0 +1,1 @@
+# BeratList-Garanti-Patika
